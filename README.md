@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mary.
 - 👀 I’m interested in part time jobs and internships.
-- 🏫 I'm currently a sophomore majoring in computer science and physics.
+- 🏫 I'm currently a junior majoring in computer science and physics.
 - 📫 How to reach me - mary.buist@rutgers.edu.
 - 🌐 Check out my personal website and small business - www.mtbuist.com.
 
